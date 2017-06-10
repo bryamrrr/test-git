@@ -5,5 +5,5 @@
 1. Bryam Rodriguez
 2. Rolando Melendez
 3. Oscar Osambela
-4. AJHCH Huallas chircca
+4. AJHCH Huayllas chircca
 
