@@ -3,4 +3,5 @@
 ## Colaboradores:
 
 1. Bryam Rodriguez
-2. Oscar Osambela
+2. Rolando Melendez
+3. Oscar Osambela
